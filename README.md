@@ -2,7 +2,7 @@
 
 💼 **Healthcare Data Analyst | Power BI Developer | SQL | Excel | Dashboard Specialist**
 📍 United Kingdom
-📢 *Open to Work*
+
 
 ---
 
